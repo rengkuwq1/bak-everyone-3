@@ -7,7 +7,7 @@ hello guys, i got banned from ponytown
 permanently. i tried to mail em, and they
 thankfully answered and wanted more information 
 but, y'know. i don't wanna deal with mails etc
-rn. in just gonna, drop the game. i have no 
+rn. im just gonna, drop the game. i have no 
 motivation or energy to get my account back so. 
 just gonna stop playing it.
 
